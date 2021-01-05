@@ -1,3 +1,3 @@
 # MyUNNExperience
 
-I joined UNN as a graduate assistant 
+I joined UNN as a graduate assistant.
